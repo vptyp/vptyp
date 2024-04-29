@@ -7,7 +7,7 @@
 
 📱 Easiest way to contact with me: @vptyp - telegram
 
-🔉 I also enjoy listening to Kendrick Lamar and Drake during my work time to help me concentrate. Their music provides a great backdrop for my creative process and helps me stay focused.
+🔉 I also enjoy listening to Kendrick Lamar and ~~Drake~~ _(ain't no big three, it's just big me)_ during my work time to help me concentrate. Their music provides a great backdrop for my creative process and helps me stay focused.
 
  🇩🇪 In free time learning german, so will be happy to talk with native speakers :D
  
