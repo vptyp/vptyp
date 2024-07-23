@@ -3,7 +3,7 @@
 🌱 I’m currently in progress of getting PhD in electronics (ITMO University), my dissertation is about:
       💊 Endoscopic systems for postoperative monitoring of patients
 
-🔭 I'm working in LG Electronics as Software Engineer on webOS development team on cloud gaming performance project.
+🔭 I'm working in LG Electronics as Software Engineer in webOS development team on cloud gaming performance project.
 
 👯 I’m looking to collaborate with anyone, who wants to start some interesting project (from 2d platform game to new engineering solution for some math distribution)
 
