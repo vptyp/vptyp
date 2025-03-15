@@ -5,7 +5,7 @@
 
 🔭 I'm working in LG Electronics as Software Engineer in webOS development team on cloud gaming performance project.
 
-👯 I’m looking to collaborate with anyone, who wants to start some interesting project (from 2d platform game to new engineering solution for some math distribution)
+👯 I’m looking to collaborate with anyone, who wants to start some interesting project
 
 📱 Easiest way to contact with me: @vptyp - telegram
 
